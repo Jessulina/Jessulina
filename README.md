@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jessulina. You can call me Jess, Jessi, or Jessica. I’m a passionate developer and a mom (but you can’t call me that 😄).
-- Looking forward to connecting with fellow developers and sharing knowledge!
-- 👀 I'm interested in design, technology, and reading mind-blowing books." 
+- Looking forward to connect with fellow developers and sharing knowledge!
+- 👀 I'm interested in design, technology, and reading mind-blowing books
 - 🌱 I’m currently learning ... always striving to expand my knowledge! 
 - 💞️ I'm seeking collaborations on projects that help me gain valuable experience in the tech industry.
 - 📫 How to reach me : jessicaelbaum@gmail.com / discord: .jessulina / linkedIn: https://www.linkedin.com/in/jessica-sabrina-elbaum
